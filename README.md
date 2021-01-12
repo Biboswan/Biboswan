@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on my new blog site https://biboswanroy.com
+- 🔭 I’m currently working rather researching on an a11y tool i have in mind.
 - 🤔 I’m looking for help with job search
 - 💬 Ask me about anything whether I answer or not is upto me 😜 
 - 📫 How to reach me: Mail be at bibo@biboswanroy.com or shoot a DM in Twitter: @Biboswan98
